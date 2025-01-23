@@ -2,7 +2,7 @@
 
 Welcome to **Unblocked Games G Plus (Unblocked Games G+)**! This is your go-to platform for enjoying a wide variety of games without any restrictions. Whether you're at school, work, or any network with limitations, we provide a seamless way to play your favorite games for free.
 
-<a href="https://classroom-6x-unblocked.github.io/">👉 Click To Play Unblocked Games G Plus 👈</a>
+## <a href="https://classroom-6x-unblocked.github.io/">👉 Click To Play Unblocked Games G Plus 👈</a>
 
 ## What Are Unblocked Games?
 
